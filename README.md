@@ -5,4 +5,4 @@
 
 ![github contribution grid snake animation](https://cdn.staticaly.com/gh/ACG-Q/ACG-Q/output/github-contribution-grid-snake.svg)
 
-![欸嘿嘿](https://moe-counter.glitch.me/get/@ACG-Q)
+![欸嘿嘿]([https://moe-counter.glitch.me/get/@ACG-Q?theme=](https://count.getloli.com/get/@acg-q?theme=rule34)https://count.getloli.com/get/@acg-q?theme=rule34)
